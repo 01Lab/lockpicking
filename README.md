@@ -31,12 +31,6 @@ mil réis a três contos de réis
 
 > <b>Pena – prisão simples, de dois meses a um ano, e multa de duzentos mil réis a dois contos de réis.</b>
 
-
-Uns fazem assim até conhecer o **Lock Picking**
-
-![](http://i.giphy.com/Njjakmj3DC7pS.gif)
-</br>
-
 ![](http://i.giphy.com/ezTqRwBoQRZhm.gif)
 
 ![](http://i.giphy.com/GIB5o5XQW0tlm.gif)
