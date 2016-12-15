@@ -33,9 +33,8 @@ mil réis a três contos de réis
 
 ![](http://i.giphy.com/ezTqRwBoQRZhm.gif)
 
-![](http://i.giphy.com/GIB5o5XQW0tlm.gif)
-
-#### Obs: Aqui está se usando a chave.
 ![](https://media.giphy.com/media/SuPhcufzyaLxm/source.gif)
+
+![](http://i.giphy.com/GIB5o5XQW0tlm.gif)
 
 ![](http://i.giphy.com/nhFJRBA9yaMJG.gif)
