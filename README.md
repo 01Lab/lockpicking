@@ -33,7 +33,7 @@ mil réis a três contos de réis
 
 ![500x500](http://i.giphy.com/ezTqRwBoQRZhm.gif)
 
-![200x200](https://media.giphy.com/media/SuPhcufzyaLxm/source.gif)
+![120x200](https://media.giphy.com/media/SuPhcufzyaLxm/source.gif)
 
 ![](http://i.giphy.com/GIB5o5XQW0tlm.gif)
 
