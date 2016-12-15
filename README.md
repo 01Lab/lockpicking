@@ -31,7 +31,7 @@ mil réis a três contos de réis
 
 > <b>Pena – prisão simples, de dois meses a um ano, e multa de duzentos mil réis a dois contos de réis.</b>
 
-![](http://i.giphy.com/ezTqRwBoQRZhm.gif)
+![500x500](http://i.giphy.com/ezTqRwBoQRZhm.gif)
 
 ![](https://media.giphy.com/media/SuPhcufzyaLxm/source.gif)
 
