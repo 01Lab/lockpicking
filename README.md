@@ -39,6 +39,15 @@ mil réis a três contos de réis
 
 ### Videos 
 
-https://www.youtube.com/watch?v=QiYIYXEX9Ko 
+* https://www.youtube.com/watch?v=QiYIYXEX9Ko 
 
-https://www.youtube.com/watch?v=LSt0RxkA_f8
+* https://www.youtube.com/watch?v=LSt0RxkA_f8
+
+* https://www.youtube.com/watch?v=QXpcPZN_3yI
+
+## Links úteis
+
+* https://blog.cienciahacker.ch/downloads/artigos/lockpicking%20a%20arte%20de%20abrir%20fechaduras.pdf
+
+* http://www.ebah.com.br/content/ABAAAfYg0AK/lockpicking-a-arte-abrir-cadeados-fechaduras
+
